@@ -5,5 +5,5 @@ todos os dias quando acordo não tenho mais o tempo que passou mas tenho muito t
 to aprendendo vamo que vamo issoa ai
 i don't' speak english
 love to love 
-more for information
-i'am tobe the bestprogamer
+for more information
+i'am to be the best programer
